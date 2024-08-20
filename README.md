@@ -2,7 +2,7 @@
 - 👀 I’m interested in all things software
 - 🌱 I’m currently learning new ways of building better products
 - 💞️ I’m looking to collaborate on open source projects of any kind that peeks my interests and aligns with my skillset
-- 📫 How to reach me newsailor958@outlook.com
+- 📫 How to reach me ucheecoma@outlook.com
 - 😄 Pronouns: He/Him
 
 <!---
